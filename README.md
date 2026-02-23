@@ -1,3 +1,3 @@
-![Alt Tag](https://cdn.discordapp.com/attachments/1223392595078680647/1475202491833520370/Untitled7_20260222204723.png?ex=699ca0e1&is=699b4f61&hm=01e783796643ba566102904d5390d87bfb9ca47477ecb11ce60055b6cc3b18d6&)
+![Alt Tag](https://cdn.discordapp.com/attachments/1223392595078680647/1475521176141824040/Untitled9_20260223175102.png?ex=699dc9ae&is=699c782e&hm=5e7f55a040a18c813ab9f7caf48558f242f33fd5594d43beb9c10f1d755dc1be&)
 
-ㅤ[***STRAW***](https://pasholnahhuj.straw.page/) ㅤㅤ[***ATA***](https://mewstacy.atabook.org/) ㅤㅤㅤㅤ[***GUNS***](https://guns.lol/berrybubble)ㅤㅤㅤㅤㅤㅤ
+ㅤㅤㅤㅤㅤ[***GUNS***](https://guns.lol/berrybubble)ㅤㅤㅤㅤㅤㅤ
